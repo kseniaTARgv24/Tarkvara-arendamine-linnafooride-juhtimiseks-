@@ -1,0 +1,1 @@
+# Tarkvara-arendamine-linnafooride-juhtimiseks-
